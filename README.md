@@ -1,3 +1,3 @@
 # SAYNA-MARKETING-EVALUATIONF-072022
 # NOTRE VIDEO DE REPRESENTATION EST TROP LOURD POUR GITHUB, ALORS VOICI LE LIEN POUR ACCEDER A CE VIDEO
-[lien](https://docs.google.com/presentation/d/1UQgafUO8OfaVoV6-FUqsGTw47_IWNWAY0MZzbOtWKtg/edit?usp=sharing)
+[https://drive.google.com/file/d/17lbA3YUVuME7VCGE96jsbqRRB3NUXuM5/view?usp=sharing](https://drive.google.com/file/d/17lbA3YUVuME7VCGE96jsbqRRB3NUXuM5/view?usp=sharing)
